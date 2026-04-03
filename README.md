@@ -6,4 +6,4 @@
 
 <div align="center">
 
-#### </sub>[**rentry**](https://rentry.co/awaked)⠀⠀⠀⠀⠀[**新book**](https://hyrule.atabook.org/)</sub>
+#### [**rentry**](https://rentry.co/awaked)⠀⠀⠀⠀⠀[**新book**](https://hyrule.atabook.org/)
