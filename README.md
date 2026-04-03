@@ -2,4 +2,4 @@
 
 <div align="center">
 
-#### [**RENTRY**](https://rentry.co/awaked)⠀⠀⠀⠀⠀[**新BOOK**](https://hyrule.atabook.org/)
+#### [**RENTRY**](https://rentry.co/awaked)⠀⠀⠀𓇼⠀⠀⠀[**新BOOK**](https://hyrule.atabook.org/)
